@@ -4,7 +4,7 @@
 - 💞️ I’m, looking to collaborate on music discovery
 - 📫 How to reach me chuck.roberts01@gmail.com
 - 😄 Pronouns: he, him
-- ⚡ Fun fact: Im a noob in 2024
+- ⚡ Fun fact: I'm a noob in 2024
 
 <!---
 Chuck537/Chuck537 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
